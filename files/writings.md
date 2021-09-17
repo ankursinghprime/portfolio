@@ -1,4 +1,4 @@
-## links of newsletter designed and written by me
+## links of newsletters designed and written by me
 
 https://softwaredaily.substack.com/p/the-software-daily-experience
 
